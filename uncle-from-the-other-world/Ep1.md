@@ -1,4 +1,4 @@
-- Fall out (phrasal verb) /fɔːl/  : cãi cọ bất đồng quan điểm
+* Fall out (phrasal verb) /fɔːl/  : cãi cọ bất đồng quan điểm
   Ex : Out family had a huge falling out because of you.
 
 - Fall apart (phrasal verb) : tan rã , sụp đỗ.
