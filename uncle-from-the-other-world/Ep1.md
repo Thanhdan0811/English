@@ -58,5 +58,24 @@ Ex: Memory into oblivion.
 Ex: Do you think a man, who committed himself to SEGA truly deserves to live a full life ? 
 Ex: Why is he letting a game system dictate his life so much ?
 
-#
+# innovations /ˌɪnəˈveɪʃn/ (n) : sự đổi mới, cách tân.
+Ex: You know, I did some technical innovations of my own in the other world.
+
+# drought /draʊt/ (n) : hạn hán,
+# pot /pɑːt/ (n) : cái nồi, cái bình, cái ấm.
+Ex: I made a pot that overflowed with water to stop a village's drought
+
+# reverse /rɪˈvɜːrs/ (v) : đảo ngược
+# electrolysis /ɪˌlekˈtrɑːləsɪs/ (n) : hiện tượng điện phân.
+# process /ˈprɑːses/ (v) : xử lý, 
+Ex: I managed to revers the electrolysis process to create water.
+
+# modern /ˈmɑːdərn/ (adj) hiện đại.
+Ex: you beat modern science.
+
+# blow /bləʊ/ - blew /bluː/ - blown /bləʊn/ : thổi bay
+Ex: you must have blown all their minds!
+
+# sacrilegious /ˌsækrəˈlɪdʒəs/ (adj) : báng bổ, phạm thánh.
+Ex: I guess what I did was sacrilegious.
 
